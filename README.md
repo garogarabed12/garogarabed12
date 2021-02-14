@@ -7,4 +7,4 @@ Passionate computer science student at the [University of Dussledorf](https://ww
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=garogarabed12)](https://github.com/anuraghazra/github-readme-stats)
 
 
-Let's get in touch! :e-mail: <garogarabed@hotmail.com>
+Let's get in touch! :e-mail: <garogarabed12@protonmail.com>
